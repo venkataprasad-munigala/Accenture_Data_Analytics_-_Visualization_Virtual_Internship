@@ -1,1 +1,1 @@
-# Accenture_Data_Analytics_-_Visualization_Virtual_Internship
+# Accenture_Data_Analytics_Visualization_Virtual_Internship
